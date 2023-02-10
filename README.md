@@ -1,0 +1,1 @@
+for educational purpouses only
